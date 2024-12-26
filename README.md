@@ -1,9 +1,9 @@
 🪬 Marahaba - I’m @e11e99
 🧿 I am obsessed with research
-💡 & currently ruminating on the energy transition
+💡 & currently ruminating on the impacts of the energy transition
 😊 happy to collaborate on a resource paper for academics using AI
 ❌ https://x.com/E11e99
-🙏🏾 thanks for reading this far
+🙏🏾 thanks for reading
 🫧 warm regards!
 
 <!---
